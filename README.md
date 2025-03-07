@@ -1,1 +1,1 @@
-# gzgtg.github.io
+# gz的博客
